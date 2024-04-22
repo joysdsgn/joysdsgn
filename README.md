@@ -1,5 +1,5 @@
-# DELETE
-These are deleted text. Please sign in to edit.
+# Filed Reason
+`@cowfyee has filed a report to a user named @joysdsgn. Unauthorized reading is not allowed. All rights reserved.` 
 
 ## More information
-Deleted text cannot be replaced. This is a deleted file was made by @cowfyee. All rights reserved.
+This file has private information. Please sign in to continue. 
