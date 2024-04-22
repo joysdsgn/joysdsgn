@@ -1,5 +1,5 @@
-# joysdsgn
-joysdsgn (joys ) projects / repositories. Follow for more data / statuses / work days / updates.
+# DELETE
+These are deleted text. Please sign in to edit.
 
 ## More information
-All repositories created and edited by joysdsgn / joys and osumekeys / Osume Developments. Some repositories are controlled by wattpad-ambassadors / Wattpad Ambassadors.
+Deleted text cannot be replaced. This is a deleted file was made by @cowfyee. All rights reserved.
